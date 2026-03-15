@@ -19,9 +19,4 @@
 4. Enjoy increased token visibility and hype without needing to perform manual trades!
 
 
-## 🔗 Support and Contributions:
-Tg: PumpPumpersGOAT
 
-Donate us: BDCKQxJWYBMNdeCwvcEU5BLh432eDzVGWK5bHkomcoef
-
----
